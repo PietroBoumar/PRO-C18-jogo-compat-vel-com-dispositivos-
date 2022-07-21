@@ -1,0 +1,1 @@
+# PRO-C18-jogo-compat-vel-com-dispositivos-
